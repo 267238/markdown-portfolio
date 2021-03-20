@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**Don't waste this precious human life in sense gratification**
+😄:heart:
